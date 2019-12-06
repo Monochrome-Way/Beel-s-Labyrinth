@@ -1,1 +1,1 @@
-# Beel-s-Labyrinth
+# Beel's Labyrinth
